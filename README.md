@@ -1,1 +1,1 @@
-# Al-Xorazmiy-
+# Al-Xorazmiy
